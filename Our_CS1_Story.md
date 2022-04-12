@@ -8,7 +8,7 @@ Tanner
 
 Jake
 
-Esteban
+Esteban: They drew their sword
 
 Joshua
 
