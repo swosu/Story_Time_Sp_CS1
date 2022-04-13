@@ -19,3 +19,5 @@ Zoe
 Rodney: Flying above was a dragon 
 
 Ryan:   and his wrath was mighty.
+
+Jessica: Then he was eaten by said dragon and died. 
