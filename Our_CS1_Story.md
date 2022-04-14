@@ -10,7 +10,7 @@ Jake
 
 Esteban: They drew their sword
 
-Joshua
+Joshua: Fearless soldiers, they thought they were.
 
 Matthew 
 
